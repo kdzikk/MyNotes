@@ -1,1 +1,1 @@
-# MyNotes
+https://kdzikk.github.io/MyNotes/
